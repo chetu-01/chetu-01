@@ -1,4 +1,4 @@
-### Hi, my name is Hardanish Singh
+### Hi, my name is Chetan Shimpi
 
 ### ✅ &nbsp;Connect with me
 <a href="https://ca.linkedin.com/in/chetanms2001">
